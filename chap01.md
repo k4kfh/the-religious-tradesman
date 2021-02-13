@@ -73,3 +73,23 @@ Diligence, care, and honest work in our Christian life will no doubt lead to spi
 But how preposterous is it! These eternal concerns are overlooked. This vital, necessary business is neglected, not just by the ignorant, but even by men of business, who are familiar with hard work and diligence! Too many people rise up early, go to bed late, and eat the bread of labor for some tiny Earthly gains, but cannot find a moment to think of God and their souls, even though reason and the Word of God assure them that this neglect is destroying their eternity.
 
 Oh, come on, you hard working mortals! are the unsatisfying, temporary pleasures and honors of this life worth so much that you don't need to worry about what will happen to you when this life is over? Consider your ways and be wise. May God teach us all to know the things that differ, and prefer those that are most excellent, and by His power and His grace make us wise and happy forever!
+
+---
+
+These verses are listed at the end of the chapter:
+
+- "And Abel was a keeper of sheep, but Cain was a tiller of the ground." Gen. 4:2
+- "When the sun rises, they gather together and lie down in their dens. Then people go off to their work, to do their work until evening." Psalm 104:22-24
+- "The lazy do not roast[a] any game, but the diligent feed on the riches of the hunt." Proverbs 12:27
+- "All hard work brings a profit, but mere talk leads only to poverty." Proverbs 14:23
+- "Whoever loves pleasure will become poor; whoever loves wine and olive oil will never be rich." Proverbs 21:17
+- "Through laziness, the rafters sag; because of idle hands, the house leaks." Ecclesiastes 10:18
+- "A wife of noble character who can find? She is worth far more than rubies. She watches over the affairs of her household
+    and does not eat the bread of idleness." Proverbs 31:10,27
+- "Now this was the sin of your sister Sodom: She and her daughters were arrogant, overfed and unconcerned; they did not help the poor and needy." Ezekiel 16:49
+- "In Joppa there was a disciple named Tabitha (in Greek her name is Dorcas); she was always doing good and helping the poor. About that time she became sick and died, and her body was washed and placed in an upstairs room...Peter went with them, and when he arrived he was taken upstairs to the room. All the widows stood around him, crying and showing him the robes and other clothing that Dorcas had made while she was still with them." Acts 9:36,37,39
+- "You yourselves know that these hands of mine have supplied my own needs and the needs of my companions. In everything I did, I showed you that by this kind of hard work we must help the weak, remembering the words the Lord Jesus himself said: ‘It is more blessed to give than to receive.’" Acts 20:34-35
+- "Besides, they get into the habit of being idle and going about from house to house. And not only do they become idlers, but also busybodies who talk nonsense, saying things they ought not to." 1 Timothy 5:13
+- "Our people must learn to devote themselves to doing what is good, in order to provide for urgent needs and not live unproductive lives." Titus 3:14
+
+
